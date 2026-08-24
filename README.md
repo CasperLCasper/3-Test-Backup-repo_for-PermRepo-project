@@ -3,3 +3,5 @@
 Turpinām!!!
 
 Turpinām!!!
+
+Pieskrūvējām iekšējo Turbo kredītu grāmatvedību!
