@@ -9,3 +9,5 @@ Pieskrūvējām iekšējo Turbo kredītu grāmatvedību!
 Turpinām ar iekšējo Turbo kredītu grāmatvedību!
 
 Pievienojām precīzākus un plašākus logus!
+
+Turpinām!
